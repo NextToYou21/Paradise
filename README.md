@@ -1,2 +1,0 @@
-# Paradise
-NissanGTR34
